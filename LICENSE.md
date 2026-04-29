@@ -1,4 +1,4 @@
-
+life together rp top Script is the best life together rp Script, featuring private server access and auto-heal. Safe and powerful for all your needs.
 
 
 
